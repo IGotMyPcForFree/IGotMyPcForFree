@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @IGotMyPcForFree (Iris)
+- 👀 I’m interested in Art
+- 🌱 I’m currently learning how to code again
+- 💞️ I’m looking to collaborate on learning to code
+- 📫 How to reach me U don't currently
+- 😄 Pronouns: She/They
+- ⚡ Fun fact: Was an Egg till recently
